@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kovi
+- 👀 Python Developer
+- 🚀 20k Network
+- 🔗 k.ovi on discord
